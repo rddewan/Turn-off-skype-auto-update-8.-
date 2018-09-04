@@ -1,2 +1,2 @@
 # Turn-off-skype-auto-update-8.*
-crazy microsoft skype suck's
+crazy and annoying microsoft skype update suck's
