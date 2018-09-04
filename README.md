@@ -1,0 +1,1 @@
+# Turn-off-skype-auto-update-8.-
